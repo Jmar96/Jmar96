@@ -10,3 +10,6 @@ I'm currently a Systems Engineer at FujitsuPH, responsible for assessing systems
 - 📫 How to reach me: [Email me](mailto:jaymaryugo90@gmail.com).
 - 😄 Pronouns: Him.
 - ⚡ Fun fact: I am half finish.
+
+
+► /play secret► /play trombone► /play crickets► /play rimshot► /play vuvuzela► /play tmyk► /play live► /play drama► /play yeah► /play greatjob► /play pushit► /play nyan► /play tada► /play ohmy► /play bueller► /play ohyeah► /play 56k► /play dangerzone► /play horn► /play horror► /play loggins► /play yodel► /play sax► /play noooo► /play heygirl► /play inconceivable► /play deeper► /play whoomp► /play clowntown► /play what► /play bezos► /play trololo► /play makeitso► /play sexyback► /play bell► /play danielsan► /play greyjoy► /play story► /play dadgummit► /play rollout► /play cottoneyejoe► /play rumble► /play guarantee► /play unix► /play letitgo

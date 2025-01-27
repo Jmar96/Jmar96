@@ -4,11 +4,12 @@
 
 - 🔭 I’m currently working on Fujitsu as Systems Engineer.
 - 🌱 I’m currently learning Python.
-- 👯 I’m looking to collaborate on any Web Development Project.
+- 👯 I’m looking to collaborate on any Web Development Project or other similar role.
 - 🤔 Hmmm.
 - 💬 Ask me about Web Developement.
 - 📫 How to reach me: [Email me](mailto:jaymaryugo90@gmail.com).
 - 😄 Pronouns: Him.
+- [Portfolio](https://jmar96.github.io/JmarPortfolio/)
 <!-- - ⚡ Fun fact: I am half finish. 
 #
 
